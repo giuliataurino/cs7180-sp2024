@@ -4,6 +4,7 @@
 **Class meeting:** Mondays and Thursdays, 11:45am &ndash; 1:25pm
 
 **Instructor:** David Smith (Office hours: TBA; WVH 356 or via zoom)
+**Teaching Assistant:** Giulia Taurino
 
 #### Course Description
 
